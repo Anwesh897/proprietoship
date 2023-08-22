@@ -1,1 +1,1 @@
-# proprietoship
+# proprietorship
